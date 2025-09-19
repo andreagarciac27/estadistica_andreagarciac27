@@ -1,2 +1,2 @@
 # estadistica_andreagarciac27
-Repositorio para almacenar el código de el curso de estadística 2025-2 Universidad de Antioquia 
+a veces quiero subirme a la copa más alta del arbol más alto y grita ¡Hijueputa!¡Hijieputa!¡HIJUEPUTA! y no lo he hecho pero me dan ganas.
